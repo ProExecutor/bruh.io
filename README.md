@@ -1,0 +1,2 @@
+# bruh.io
+is game
