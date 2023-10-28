@@ -1,2 +1,0 @@
-# bruh.io
-is game
